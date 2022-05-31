@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Asasinul
-- 👀 I’m interested in, hacking
+- 👀 I’m interested in hacking
 - I’m currently learning hacking (sadly with no success)
 - I’m looking to collaborate on nothing yet...
-- How to reach me, on discord: 🔥💎YouTuber✔ Asasinul Umbrelor™👑#5874
+- How to reach me, on discord: ッYouTuber✔ Asasinul Umbrelor™#4208
 - thats all bout' me
